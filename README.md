@@ -9,7 +9,7 @@
 
 - Building **Machine Learning Projects**
 
-- 📫 How to reach me **farjanayasmin655@gmail.com**
+- 📫 How to reach me **farjana.yasmin.nwu@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
